@@ -11,7 +11,9 @@
 
 - 👨‍💻 All of my projects are YouTube videos [https://youtube.com/@slcyberscanners?si=BF-bNOA5gUgL2k3p](https://youtube.com/@slcyberscanners?si=BF-bNOA5gUgL2k3p)
 
-- View email address **cyberscanners802@gmail.com**
+- View email address **cyberscanners802@gmail.com** 
+
+- CYBER SCANNERS ETHICAL HACKING YT TRANING whats app channel. [https://whatsapp.com/channel/0029Vb632ZGDDmFebmNsLp1G](https://whatsapp.com/channel/0029Vb632ZGDDmFebmNsLp1G)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
